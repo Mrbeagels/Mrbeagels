@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **thibaud.marin1@gmail.com**
 
-- 📄 Know about my experiences [https://mrbeagels.github.io/CV-numerique/](https://mrbeagels.github.io/CV-numerique/)
+- 📄 Know about my experiences [https://mrbeagels.github.io/CV-numerique/](https://mrbeagels.github.io/Cv-Num-rique-TM/)
 
 - ⚡ Fun fact **5 years as a cook, so i know how to let off steam.**
 
